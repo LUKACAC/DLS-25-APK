@@ -3,7 +3,6 @@
 **DLS 25 APK**, also known as Dream League Soccer 2025, is an exciting mobile game that has gained widespread attention among soccer enthusiasts. This version of the Dream League Soccer series offers an array of updates and features that enhance gameplay, graphics, and overall experience. Whether you're a soccer fan or someone who enjoys immersive mobile games, **DLS 25 APK** has something to offer. 
 
 ### Download 1: [DLS 25 APK](https://tinyurl.com/mr2n9wnp)
-### Download 2: [DLS 25 APK](https://tinyurl.com/24hdym79)
 
 ## **Benefits of Using DLS 25 APK**
 
